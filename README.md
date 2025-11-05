@@ -1,1 +1,1 @@
-Rudenko Dmytro Ruslanovich dmytrowork06@gmail.com # Sana01
+Руденко Дмитро Русланович dmytrowork06@gmail.com # Sana01
